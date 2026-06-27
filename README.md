@@ -3,6 +3,6 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/delciine/delciine/blob/823bee538764cbbda26bb9351130590a112bbebf/2739a72feae1cdcb1eb5561425cd77dd.jpg" />
+  <img src="https://github.com/delciine/delciine/blob/b9bb13f1caad64b7802d07f769c4683f7dc6fc7e/bcd74849e39b7b5c0e43897a79d8fbe0.gif" />
 </p>
 
