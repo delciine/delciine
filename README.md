@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=heavenly-stars&color=lightgrey" />
 </p>
  ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  
-⠀⠀⠀⠀⠀⠀⠀⠀ working on other socials lol  ⠀ ⠀ ⠀ ⠀ ⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ working on other socials lol  ⠀ ⠀ ⠀ ⠀ ⠀⠀
 ⠀ ⠀ ⠀ ⠀⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀  ⠀ ⠀ ⠀⠀ ⠀
 
 <p align="center">
