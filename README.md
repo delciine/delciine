@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=heavenly-stars&color=lightgrey" />
 </p>
  ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀  
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ basic ahh socials⠀ ⠀ ⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀holeh moleh
 
 ⠀ ⠀⠀
 ⠀ ⠀ ⠀ ⠀⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀  ⠀ ⠀ ⠀⠀ ⠀
